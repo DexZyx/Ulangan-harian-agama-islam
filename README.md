@@ -70,5 +70,7 @@ Dan balasan orang tidak berpuasa adalah sebagai berikut:
 •Hilangnya pahala puasa: Puasa di bulan Ramadan dianggap sebagai ibadah yang bernilai tinggi dalam agama Islam, dan dijanjikan pahala yang besar bagi mereka yang melakukannya dengan ikhlas. Oleh karena itu, seseorang yang sengaja tidak berpuasa dapat kehilangan pahala yang seharusnya diperoleh dari ibadah puasa.
 
 Puasa: 23
+
 Traweh: 17
+
 Tadarus: 10
