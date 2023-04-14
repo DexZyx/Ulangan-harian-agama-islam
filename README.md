@@ -64,6 +64,7 @@ Ayat ini menandai awal wahyu Allah kepada Nabi Muhammad dan menjadi permulaan da
 
 
 Dan balasan orang tidak berpuasa adalah sebagai berikut:
+
 •Dosa: Menurut pandangan agama Islam, meninggalkan puasa tanpa alasan yang sah atau sengaja tidak berpuasa di bulan Ramadan dianggap sebagai dosa besar. Dosa ini dianggap sebagai pelanggaran terhadap perintah Allah dan dapat mempengaruhi keberuntungan dan pahala seseorang di dunia dan akhirat.
 
 •Hilangnya pahala puasa: Puasa di bulan Ramadan dianggap sebagai ibadah yang bernilai tinggi dalam agama Islam, dan dijanjikan pahala yang besar bagi mereka yang melakukannya dengan ikhlas. Oleh karena itu, seseorang yang sengaja tidak berpuasa dapat kehilangan pahala yang seharusnya diperoleh dari ibadah puasa.
