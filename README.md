@@ -1,7 +1,9 @@
 # Ulangan-harian-agama-islam
 
 Nama:Dede kusmana putra
+
 Kelas:x tkj
+
 Mapel:agama islam
 
 1.Kehidupan dalam kemuliaan dalam konteks agama dapat merujuk pada pengalaman spiritual yang dianggap tinggi atau sempurna, seperti pengalaman kehadiran Tuhan, kedekatan dengan Tuhan, atau mencapai tingkat kesucian atau kesempurnaan spiritual. Penelitian dalam aspek ini dapat melibatkan pengamatan atau analisis terhadap keyakinan agama, praktik keagamaan, atau pengalaman pribadi individu dalam mencapai kehidupan dalam kemuliaan.
