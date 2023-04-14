@@ -1,6 +1,8 @@
 # Ulangan-harian-agama-islam
 1.Kehidupan dalam kemuliaan dalam konteks agama dapat merujuk pada pengalaman spiritual yang dianggap tinggi atau sempurna, seperti pengalaman kehadiran Tuhan, kedekatan dengan Tuhan, atau mencapai tingkat kesucian atau kesempurnaan spiritual. Penelitian dalam aspek ini dapat melibatkan pengamatan atau analisis terhadap keyakinan agama, praktik keagamaan, atau pengalaman pribadi individu dalam mencapai kehidupan dalam kemuliaan.
+
 2.Hukum bacaan yang terdapat di dalam lafadz Ya ayyuhalladzi na antara lain adalah: Mad wajib mumfasil sebab setelah mad asli ada huruf alif di kalimat yang berbeda. Mad asli atau mad thabi' karena setelah huruf berharakat fathah ada huruf alif. Alif lam syamsyiah karena setelah huruf alif lam ada huruf lam setelahnya.
+
 3.Nabi Muhammad diangkat menjadi nabi dan rasul pada usia 40 tahun. Kejadian ini dikenal sebagai peristiwa kenabian atau Al-Mab'ath, dan terjadi pada tahun 610 Masehi.
 
 Ayat pertama yang turun kepada Nabi Muhammad adalah ayat pertama dari surat Al-Alaq dalam Al-Quran, yang diterima saat Nabi Muhammad berada di Gua Hira. Ayat pertama tersebut berbunyi:
@@ -10,6 +12,7 @@ Ayat pertama yang turun kepada Nabi Muhammad adalah ayat pertama dari surat Al-A
 (Artinya: "Bacalah (Muhammad), dengan (menyebut) nama Tuhanmu Yang Menciptakan, Dia telah menciptakan manusia dari segumpal darah.") [Al-Alaq: 1]
 
 Ayat ini menandai awal wahyu Allah kepada Nabi Muhammad dan menjadi permulaan dari risalah kenabian yang dibawanya. Dengan demikian, usia Nabi Muhammad ketika ayat pertama turun adalah 40 tahun, dan itu merupakan awal dari misi kenabiannya sebagai Nabi dan Rasul Allah SWT.
+
 4.•Menyampaikan wahyu kepada para nabi: Malaikat Mikail dan Jibril bersama-sama bertugas untuk menyampaikan wahyu atau perintah Allah SWT kepada para nabi. Malaikat Jibril biasanya bertugas sebagai perantara dalam menyampaikan wahyu kepada para nabi, sedangkan Malaikat Mikail dapat ikut terlibat dalam menyampaikan pesan-pesan ilahi kepada para nabi.
 
 •Mengatur urusan langit dan bumi: Malaikat Mikail dan Jibril bersama-sama bertugas dalam mengatur urusan langit dan bumi. Malaikat Mikail mengatur cuaca, pengaturan sumber daya alam, dan mengendalikan bencana alam, sedangkan Malaikat Jibril mengatur gerak bintang, bulan, dan matahari, serta mengatur proses alam semesta secara keseluruhan.
@@ -19,6 +22,7 @@ Ayat ini menandai awal wahyu Allah kepada Nabi Muhammad dan menjadi permulaan da
 •Menjaga dan melindungi makhluk hidup: Malaikat Mikail dan Jibril juga bersama-sama bertugas dalam menjaga dan melindungi makhluk hidup di bumi. Mereka dapat berperan dalam menjaga keamanan, kesehatan, dan kesejahteraan makhluk hidup sesuai dengan perintah Allah SWT.
 
 •Melakukan tugas-tugas khusus sesuai dengan perintah Allah SWT: Selain tugas-tugas di atas, Malaikat Mikail dan Jibril juga dapat melakukan tugas-tugas khusus sesuai dengan perintah Allah SWT yang mungkin tidak diungkapkan secara rinci dalam sumber-sumber agama.
+
 5.•Sakit: Jika seseorang sakit atau mengalami kondisi medis yang memerlukan pengobatan atau perawatan yang tidak bisa ditunda, maka puasa dapat dibatalkan. Namun, setelah sembuh, biasanya diwajibkan mengganti puasa yang telah ditinggalkan.
 
 •Perjalanan: Jika seseorang sedang dalam perjalanan yang memerlukan perjalanan jauh dan berat atau berada dalam keadaan yang mengharuskan berbuka puasa, maka puasa dapat dibatalkan. Namun, setelah perjalanan selesai, biasanya diwajibkan mengganti puasa yang telah ditinggalkan.
